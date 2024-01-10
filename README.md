@@ -1,11 +1,8 @@
 🤘🤘Hi there🤘
 
-🌗I’m currently working on building up my portfoli and experience in programing and sodtware development to try and that my first job and start off my dream career in in coding, programing, software developemnt and just technology in general👨‍💻💻.
+🌗i am dedicated to building a career in coding and software development, I am actively expanding my skill set and crafting a robust portfolio. Seeking opportunities that align with my passion for technology, I am committed to continuous learning and strategic networking within the industry.👨‍💻💻.
 
-👨‍💻💻 I currently know Java,JavaScript,C# and python and my knowledge of them is pretty good although i am always learning somthing new and striving to master each and every language i can wrap my head around plus all the extras.  
-
-
-👨‍💻💻 I’m currently learning Dart/Flutter, trying to keep up with times 👨‍🎓. 
+👨‍💻💻 I possess solid knowledge in JavaScript, HTML, CSS, Java, and Python. While I have a solid foundation in these languages, I am actively learning and consistently working towards mastering each one. My commitment extends to acquiring additional skills and knowledge beyond the basics. 
 
 💬 Ask me about anything (☞ﾟヮﾟ)☞☜(ﾟヮﾟ☜),you can reach me on my email ryanjohnsonjuhasz@gmail.com. 
 
